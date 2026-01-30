@@ -1,7 +1,1 @@
-# Curso TMW Git e Github 2026
 
-sdmknvksdmvsknflçanfçomdakvlsdvlksl;b\sdvklsd\lçkmslkmgksdnvklss
-sfv sknvksdvjsdklvmdskvnjsnbsdnndsçkvnkaskmclkadnblksnblknsdklbnsd
-
-sklvnkdnvknadkcmlmskv dkjbsdfniadjcsmvksdgisndfmskv kkdnvief
-sdlbmdskmdskns 
