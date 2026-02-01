@@ -1,2 +1,2 @@
-curso para iniciates
+curso para iniciantes
 
